@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ninebaez
 - 👀 I’m interested in Create and colaborate in proyects of Videogames
-- 🌱 I’m currently learning Basic Designer Videogames
+- 🌱 I’m currently create videos on youtube https://www.youtube.com/@inglesconceline9527
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me  celinenatasha07@hotmail or celienssx2@gmail.com
 
