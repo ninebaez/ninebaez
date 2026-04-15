@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ninebaez
 - 👀 I’m interested in Create and colaborate in proyects of Videogames
-- 🌱 I’m currently create videos on youtube https://www.youtube.com/@inglesconceline9527  https://www.youtube.com/@ninaavila0703
+- 🌱 I’m currently create videos on youtube https://https://www.youtube.com/@Weeklish) https://ttps://www.youtube.com/@elmundodeninahoy)
 - 📫 How to reach me  celinenatasha07@hotmail or celienssx2@gmail.com
 
 <!---
