@@ -1,6 +1,10 @@
 - 👋 Hi, I’m @ninebaez
 - 👀 I’m interested in Create and colaborate in proyects of Videogames
-- 🌱 I’m currently create videos on youtube https://https://www.youtube.com/@Weeklish https://ttps://www.youtube.com/@elmundodeninahoy
+- 🌱 I’m currently create videos on youtube
+www.youtube.com/@Weeklish
+www.youtube.com/@elmundodeninahoy
+- Those are my tiktoks: https://www.tiktok.com/@weeklish
++ https://www.tiktok.com/@elmundodeninahoy
 - 📫 How to reach me  celinenatasha07@hotmail or celienssx2@gmail.com
 
 <!---
